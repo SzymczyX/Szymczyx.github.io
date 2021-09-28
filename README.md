@@ -1,1 +1,0 @@
-# Szymczyx.github.io
